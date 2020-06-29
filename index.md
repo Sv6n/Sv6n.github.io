@@ -17,3 +17,7 @@ that I may proceed this task.**
 	* Hidden blade
 * Assassin
 
+As Ezio Auditore da Firenze said:
+
+> Wanting something, does not give you the right to have it
+
