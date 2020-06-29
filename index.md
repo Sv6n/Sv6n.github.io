@@ -21,3 +21,4 @@ As Ezio Auditore da Firenze said:
 
 > Wanting something, does not give you the right to have it
 
+<img src="https://i.pinimg.com/originals/e5/a0/5a/e5a05ae734d0bb6f7194cfbc8efe4e1c.jpg"/>
